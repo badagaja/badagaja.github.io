@@ -1,1 +1,0 @@
-# badagaja.github.io
